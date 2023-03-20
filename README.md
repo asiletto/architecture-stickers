@@ -1,0 +1,1 @@
+# stickers for mangnetic drawing boards
